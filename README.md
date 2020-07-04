@@ -1,1 +1,1 @@
-# Johan-Gunawan
+# Johan-resolusi
