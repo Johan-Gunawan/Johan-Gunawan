@@ -1,1 +1,1 @@
-I like learn new things
+I like to learn new things 
